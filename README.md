@@ -1,0 +1,1 @@
+# shinseitaro.github.io
